@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MEMG831212HMSNRD01
+MEMG831212HMSNRD01
